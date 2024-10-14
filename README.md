@@ -1,1 +1,1 @@
-https://grace-s837.github.io/agshirota/index.html
+https://grace-s837.github.io/AGShirota/
